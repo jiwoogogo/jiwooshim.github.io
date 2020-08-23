@@ -1,1 +1,1 @@
-# jiwoogogo.github.io/jiwooshim
+# jiwooshim.github.io
